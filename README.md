@@ -33,7 +33,7 @@ $$ \color{#0d42ce}{\text{𝄃𝄃𝄂⠀ 𝙳𝙽𝙸⠀ Zero Day⠀ +⠀ RaM⠀
 
 <div align="center">
 
-[新book𓏻](https://swaggot.atabook.org)  [𝘙en𝒕𝒓y𓏻](rentry.co/sml)  [D̶𝔦sc ｡ ｡ྐ](https://discordid.netlify.app/?id=557669145848709142)
+[新book𓏻](https://swaggot.atabook.org)  [𝘙en𝒕𝒓y𓏻](https://rentry.co/sml)  [D̶𝔦sc ｡ ｡ྐ](https://discordid.netlify.app/?id=557669145848709142)
 
 </div>
 
