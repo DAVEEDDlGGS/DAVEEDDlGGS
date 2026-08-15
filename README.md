@@ -1,6 +1,53 @@
 <p align="center">
-</a>
-<img src="https://komarev.com/ghpvc/?username=thanossu&color=000000&style=for-the-badge&label=+⠀+⠀+i+⠀+have+⠀+to+⠀+finish+⠀+what+⠀+i+⠀+started.+⠀+&abbreviated=true" />⠀
-
+  <img src="https://komarev.com/ghpvc/?username=thanossu&color=000000&style=for-the-badge&label=+⠀+⠀+i+⠀+have+⠀+to+⠀+finish+⠀+what+⠀+i+⠀+started.+⠀+&abbreviated=true" />⠀
 <p align="center">
-<a href="https://www.tumblr.com/sckmf"><img src="https://file.garden/aSATqW7wGDOKPZEO/Untitled1834_20260810100329.png" />
+  <img src="https://file.garden/aSATqW7wGDOKPZEO/Untitled1834_20260810100329.png" align="right" width="350" /></p>
+
+
+
+ 
+
+
+
+
+
+ ㅤ
+
+ 
+
+
+ 
+
+
+
+
+
+ ㅤ
+ 
+$$ \color{#0d42ce}{\text{𝕁ohn𓏻⠀ 𝓐𝓷dre𓏻⠀ or⠀ Bro𝘰𝘬i𝚎}} $$
+<br>
+$$ \color{#0d42ce}{\text{Qui̲e̲t̲/Awk⠀ ⠀ ██⠀ C+H⠀ enc̳}} $$ 
+<br>
+$$ \color{#0d42ce}{\text{𝄃𝄃𝄂⠀ 𝙳𝙽𝙸⠀ Zero Day⠀ +⠀ RaM⠀ uf}} $$ 
+<br>
+
+<div align="center">
+
+[新book𓏻](https://swaggot.atabook.org)  [𝘙en𝒕𝒓y𓏻](rentry.co/sml)  [D̶𝔦sc ｡ ｡ྐ](https://discordid.netlify.app/?id=557669145848709142)
+
+</div>
+
+  
+
+<div align="center">
+
+<details>
+<summary>$\color{#0d42ce}{\textsf{⠀ ⠀ ⠀ ..ㅤ✝️}}$</summary>
+
+<br>
+
+$${\color{#0d42ce}<3}$$ㅤ [*ponytowncosplayers](https://github.com/ponytowncosplayers)𓏻ㅤ [*FOLKTOWN](https://github.com/FOLKTOWN)
+
+</details>
+
+</div>
