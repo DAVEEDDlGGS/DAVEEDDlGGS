@@ -28,7 +28,7 @@ $$ \color{#0d42ce}{\text{𝕁ohn𓏻⠀ 𝓐𝓷dre𓏻⠀ or⠀ Bro𝘰𝘬i�
 <br>
 $$ \color{#0d42ce}{\text{Qui̲e̲t̲/Awk⠀ ⠀ ██⠀ C+H⠀ enc̳}} $$ 
 <br>
-$$ \color{#0d42ce}{\text{𝄃𝄃𝄂⠀ 𝙳𝙽𝙸⠀ Zero Day⠀ +⠀ RaM⠀ uf}} $$ 
+$$ \color{#0d42ce}{\text{𝄃𝄃𝄂⠀ 𝙳𝙽𝙸⠀ Zero Day⠀ +⠀ RaM⠀ uf/id}} $$ 
 <br>
 
 <div align="center">
