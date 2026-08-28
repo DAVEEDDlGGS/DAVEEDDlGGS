@@ -46,7 +46,7 @@ $$ \color{#0d42ce}{\text{𝄃𝄃𝄂⠀ 𝙳𝙽𝙸⠀ Zero Day⠀ +⠀ RaM⠀
 
 <br>
 
-$${\color{#0d42ce}<3}$$ㅤ [*ponytowncosplayers](https://github.com/ponytowncosplayers)𓏻ㅤ [*FOLKTOWN](https://github.com/FOLKTOWN)𓏻ㅤ [*cosplaytown](https://github.com/cosplaytown)𓏻ㅤ [*paw-town](https://github.com/paw-town)𓏻ㅤ [*style-town](https://github.com/style-town)
+$${\color{#0d42ce}<3}$$ㅤ [*ponytowncosplayers](https://github.com/ponytowncosplayers)𓏻ㅤ [*FOLKTOWN](https://github.com/FOLKTOWN)𓏻ㅤ [*cosplaytown](https://github.com/cosplaytown)𓏻ㅤ [*paw-town](https://github.com/paw-town)𓏻ㅤ [*style-town](https://github.com/style-town)𓏻ㅤ [*charactertown](https://github.com/charactertown)
 
 </details>
 
